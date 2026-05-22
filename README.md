@@ -21,6 +21,8 @@
 <p align="center">
 Severe Anxiety/Depression & uh yeah, 
 
+<p align="center">
+UNDER 15 DNII DNIII I HATE KIDS /NOT J
 
   <p align="center">
 <a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://en.pronouns.page/@TheGarageForge">ᴘʀᴏɴᴏᴜɴs</a> 
