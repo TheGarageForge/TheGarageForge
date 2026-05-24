@@ -12,7 +12,7 @@
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/86/90/cb/8690cbc8ecafbc47752a2958b1e5e4a6.jpg" width="300" >
+  <img src="https://media1.tenor.com/m/xUfzLO2gYLgAAAAC/appear-black-noir.gif" width="300" >
 </p>
 
 <p align="center">
@@ -28,7 +28,7 @@ UNDER 15 DNII DNIII I HATE KIDS /NOT J
 <a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://en.pronouns.page/@TheGarageForge">ᴘʀᴏɴᴏᴜɴs</a> 
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/9w_SoxYaCBwAAAAC/redvsblue.gif" width="300" >
+  <img src="https://i.pinimg.com/736x/d5/61/cc/d561cc25b6e0f6d1d38fb37eaecd500f.jpg" width="300" >
 </p>
 <p align="center">
   
