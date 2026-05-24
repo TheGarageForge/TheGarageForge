@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/Ge9BwhrHexoAAAAC/red-vs-blue-rvb.gif" width="300" >
+  <img src="https://i.pinimg.com/1200x/08/1d/02/081d0260c082a3033a0f1d10fb801a37.jpg" width="300" >
 </p>
 <p align="center">
  
