@@ -12,7 +12,7 @@
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/95/72/77/95727778ac19076b9e96ec3eda28f8f6.jpg" width="300" >
+  <img src="https://i.pinimg.com/736x/53/e6/6b/53e66bd1a275e928f6e9738f930be414.jpg" width="300" >
 </p>
 
 <p align="center">
@@ -24,11 +24,5 @@ Severe Anxiety/Depression & uh yeah,
 <p align="center">
 UNDER 15 DNII DNIII I HATE KIDS /NOT J
 
-  <p align="center">
-<a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://en.pronouns.page/@TheGarageForge">ᴘʀᴏɴᴏᴜɴs</a> 
-
-<p align="center">
-  <img src="https://i.pinimg.com/736x/11/e8/7c/11e87c06bb36c4eca3acc910609629d3.jpg" width="300" >
-</p>
-<p align="center">
+ 
   
